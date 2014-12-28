@@ -1,4 +1,4 @@
 Eden_pursuit
 ============
 
-When it was terraformers from the planet Earth 
+When it was terraformers on planet Earth 
